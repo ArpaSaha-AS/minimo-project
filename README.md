@@ -1,2 +1,2 @@
 # minimo-project
-Great repository names are short and memorable. Need inspiration? How about jubilant-octo-broccoli? 
+https://arpasaha-as.github.io/minimo-project/
